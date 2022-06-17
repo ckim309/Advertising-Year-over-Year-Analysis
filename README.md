@@ -1,1 +1,1 @@
-# How well does Facebook, Twitter, and Google advertisements generate revenue?
+# How well do Facebook, Twitter, and Google advertisements generate revenue?
